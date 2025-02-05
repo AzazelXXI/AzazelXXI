@@ -1,1 +1,2 @@
-![gamerpeepo-1024x1024](https://github.com/user-attachments/assets/de3d4c6f-86f4-4c2d-9a98-c30f3b6bba40) Hi ❤️
+![gamerpeepo-small](https://github.com/user-attachments/assets/262ac953-45e1-4559-8cee-77387f3b014c) Hi ❤️
+
